@@ -1,3 +1,3 @@
 Chinmay Vijay Terse
-Eshwar Chandra VIdhyasagar Thedla
+Eshwar Chandra Vidhyasagar Thedla
 Parimal Rohan Mehta
